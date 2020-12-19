@@ -1,8 +1,6 @@
 # ChristophGeske.github.io
 Quest 2 - Kaufanleitung - Für Deutsche Kunden
 
-https://user-images.githubusercontent.com/12700187/102701116-e6fd2280-4253-11eb-9a91-bccd885c856d.jpg
-
 <p align="center">
 <a href="https://amzn.to/37wAZqf"><img src="https://user-images.githubusercontent.com/12700187/102701116-e6fd2280-4253-11eb-9a91-bccd885c856d.jpg" width="100%"></a>
 </p>
