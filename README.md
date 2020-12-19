@@ -12,22 +12,23 @@ Es macht also Sinn mal bei den anderen Amazon Seiten zu schauen Preise zu vergle
 Ich habe mal alle sinnvollen Links rausgesucht.
 
 Amazon Frankreich 64GB
-https://amzn.to/2LoGZsl
+https://amzn.to/37wAZqf
 
 Frankreich 265GB
-https://amzn.to/3qQWBoY
+https://amzn.to/3rgU1ZI
 
-Amazon Italien 64GB
-https://amzn.to/345Lcry
+Amazon Italien 64GB 
+https://amzn.to/2Kkn7qh
 
 Italien 265GB
-https://amzn.to/3qSPLPU
+https://amzn.to/2LTKOpR
 
-Amazon UK 64GB
-https://amzn.to/3ncIUhD
+Amazon UK 64GB 
+https://amzn.to/3mIeumJ
 
 UK 265GB
-https://amzn.to/2JWmD9C
+https://amzn.to/34oYyPR
+
 
 Am besten Ihr vergleicht alle 6 Links und nehmt das Angebot, wo es am schnellsten geliefert wird und am günstigsten ist.
 Wenn die 64GB Variante mal wieder überall ausverkauft ist, dann könnt ihr auch die 100€ teurere 256GB Version nehmen die ist bei den ausländischen Amazon Shops sofort verfügbar und mehr Speicher ist auch nicht schlecht. Zumindest habt ihr dann eine bis Weihnachten.
