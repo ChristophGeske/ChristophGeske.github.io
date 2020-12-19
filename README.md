@@ -39,7 +39,7 @@ https://amzn.to/34oYyPR
 Am besten Ihr vergleicht alle 6 Links und nehmt das Angebot, wo es am schnellsten geliefert wird und am günstigsten ist.
 Wenn die 64GB Variante mal wieder überall ausverkauft ist, dann könnt ihr auch die 100€ teurere 256GB Version nehmen die ist bei den ausländischen Amazon Shops sofort verfügbar und mehr Speicher ist auch nicht schlecht. Zumindest habt ihr dann eine bis Weihnachten.
 
-Bei den 344€ die ich beim Bestellen bei amazon Frankreich gezahlt habe, ist der Versand nach Deutschland für 4.99€ schon mit drin, wie man auf meiner Amazon-Rechnung (2 Bild) sehen kann.
+Bei den 344€ die ich beim Bestellen bei amazon Frankreich gezahlt habe, ist der Versand nach Deutschland für 4.99€ schon mit drin.
 
 Dass das Bestellen außerhalb Deutschlands wirklich funktioniert, könnt ihr auch hier nachlesen. Vielleicht etwas vertrauenswürdiger als mein Text.
 https://mixed.de/oculus-quest-2-infos/
