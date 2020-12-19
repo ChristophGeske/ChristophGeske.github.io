@@ -1,6 +1,8 @@
 # ChristophGeske.github.io
 Quest 2 - Kaufanleitung - Für Deutsche Kunden
 
+
+
 Wie unsozial ist es eigentlich, dass bei EbayKleinanzeigen einige ihre Geräte zu völlig überhöhten Preisen anbieten.
 
 Ihr könnt die Oculus 2 ganz einfach bei Amazon Frankreich/Ital. kaufen und sie wird euch nach Deutschland geliefert. Da es EU ist fallen auch keine Zoll oder andere Gebühren an und ihr könnt es zurück schicken genauso als hättet ihr es hier in Deutschland gekauft.
@@ -28,7 +30,6 @@ https://amzn.to/3mIeumJ
 
 UK 265GB
 https://amzn.to/34oYyPR
-
 
 Am besten Ihr vergleicht alle 6 Links und nehmt das Angebot, wo es am schnellsten geliefert wird und am günstigsten ist.
 Wenn die 64GB Variante mal wieder überall ausverkauft ist, dann könnt ihr auch die 100€ teurere 256GB Version nehmen die ist bei den ausländischen Amazon Shops sofort verfügbar und mehr Speicher ist auch nicht schlecht. Zumindest habt ihr dann eine bis Weihnachten.
