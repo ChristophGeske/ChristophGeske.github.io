@@ -19,21 +19,26 @@ Es macht also Sinn mal bei den anderen Amazon Seiten zu schauen Preise zu vergle
 Ich habe mal alle sinnvollen Links rausgesucht.
 
 Amazon Frankreich 64GB
+
 ht<span>tp://</span>amzn.to/37wAZqf
 
 Frankreich 265GB
 ht<span>tp://</span>amzn.to/3rgU1ZI
 
 Amazon Italien 64GB 
+
 ht<span>tp://</span>amzn.to/2Kkn7qh
 
 Italien 265GB
+
 ht<span>tp://</span>amzn.to/2LTKOpR
 
 Amazon UK 64GB 
+
 ht<span>tp://</span>amzn.to/3mIeumJ
 
 UK 265GB
+
 ht<span>tp://</span>amzn.to/34oYyPR
 
 Am besten Ihr vergleicht alle 6 Links und nehmt das Angebot, wo es am schnellsten geliefert wird und am günstigsten ist.
