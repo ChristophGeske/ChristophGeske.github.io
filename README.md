@@ -22,10 +22,6 @@ Ich habe mal alle sinnvollen Links rausgesucht.
       
 ht<span>tp://</span>amzn.to/37wAZqf
 
-<p align="center">
-------------------
-</p>
-
 ### Frankreich 265GB
       
 ht<span>tp://</span>amzn.to/3rgU1ZI
