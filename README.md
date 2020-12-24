@@ -2,7 +2,7 @@
 Quest 2 - Kaufanleitung - Für Deutsche Kunden
 
 <p align="center">
-<a href="https://amzn.to/37wAZqf"><img src="https://user-images.githubusercontent.com/12700187/102701116-e6fd2280-4253-11eb-9a91-bccd885c856d.jpg" width="100%"></a>
+<a><img src="https://user-images.githubusercontent.com/12700187/103102118-d6192c00-461a-11eb-9ba6-838fa19eab07.jpg" width="100%"></a>
 </p>
 <p align="center">
       Oculus Quest 2
