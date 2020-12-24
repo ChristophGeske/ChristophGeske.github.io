@@ -1,5 +1,4 @@
-# ChristophGeske.github.io
-Quest 2 - Kaufanleitung - Für Deutsche Kunden
+# Oculus Quest 2 - Kaufanleitung - Für Deutsche Kunden
 
 <p align="center">
 <a><img src="https://user-images.githubusercontent.com/12700187/103102118-d6192c00-461a-11eb-9ba6-838fa19eab07.jpg" width="100%"></a>
