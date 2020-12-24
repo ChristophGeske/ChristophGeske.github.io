@@ -70,7 +70,7 @@ Wenn die 64GB Variante mal wieder überall ausverkauft ist, dann könnt ihr auch
 Bei meiner Bestellen bei amazon Frankreich, war der Versand nach Deutschland schon mit drin und es blieb immer noch unter dem UVP den man auf der Seite sieht.
 
 Dass das Bestellen außerhalb Deutschlands wirklich funktioniert, könnt ihr auch hier nachlesen. Vielleicht etwas vertrauenswürdiger als mein Text.
-https://mixed.de/oculus-quest-2-infos/
+ht<span>tp://</span>mixed.de/oculus-quest-2-infos/
 Die ganze Sache scheint wie ein schlechter Witz zu sein, ich hatte zu Anfang auch meine Bedenken, ob das alles so geht.
 
 Bei Mediamarkt Östereich und anderen Shops in der EU gibt es sie prinzipiell auch und sogar vorrätig, aber die verschicken alle nicht nach Deutschland, daher ist Amazon die beste und anscheinend sogar einzige Option, um aus Deutschland an die Quest 2 zu kommen. Oder ihr lasst sie euch von Verwandten im Ausland kaufen und nach Deutschland schicken.
@@ -80,7 +80,7 @@ Die Quest 2 wird in Deutschland nicht verkauft weil Facebook Sorgen mit dem Kart
 Auch gilt die 2-jährige Gewährleistung bei Bestellungen innerhalb der EU.
 
 Übrigens wenn Ihr eure Quest 2 vor dem 31.01 registriert und mit einem Gaming PC verbindet, gibt es ein Pc Spiel (Asgards Wrath) gratis. Siehe hier:
-https://mixed.de/link-geburtstag-beim-kauf-einer-quest-2-gibts-asgards-wrath-gratis/
+ht<span>tp://</span>mixed.de/link-geburtstag-beim-kauf-einer-quest-2-gibts-asgards-wrath-gratis/
 
 Gebt den Abzockern bei Ebayklainanzeigen und co. also nicht euer hart verdientes Geld und viel Spaß in VR.
 
