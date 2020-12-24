@@ -30,34 +30,17 @@ ht<span>tp://</span>amzn.to/37wAZqf
       
 ht<span>tp://</span>amzn.to/3rgU1ZI
 
-<p align="center">
-------------------
-</p>
-
 ### Amazon Italien 64GB
       
 ht<span>tp://</span>amzn.to/2Kkn7qh
-
-<p align="center">
-------------------
-</p>
 
 ### Italien 265GB
 
 ht<span>tp://</span>amzn.to/2LTKOpR
 
-<p align="center">
-------------------
-</p>
-
 ### Amazon UK 64GB 
 
 ht<span>tp://</span>amzn.to/3mIeumJ
-
-
-<p align="center">
-------------------
-</p>
 
 ### UK 265GB
 
