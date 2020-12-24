@@ -89,3 +89,8 @@ Als ich am 4.12 bestellt habe, war der 9.12. das Datum an dem eine neue Lieferun
 Am 7.12 habe ich dann die Bestätigung bekommen, dass mein Paket losgeschickt worden ist. Die Angaben zur Verfügbarkeit auf Amazon Frankr. scheinen also zu stimmen oder es geht im Idealfall sogar noch schneller, so wie bei mir.
 Am 9.12 um 14 Uhr war das Paket da. Vom Absenden in Frankreich bis zu mir in NRW also nur 2 Tage.
 Ich habe übrigens mit Visa Karte bezahlt und damit gab es keine Probleme.
+
+
+DISCLAIMER:
+
+"I am a participant in the Amazon Services LLC Associates Program, an affiliate advertising program designed to provide a means for sites to earn advertising fees by advertising and linking to Amazon.com, Amazon.fr, Amazon.it, Amazon.co.uk and affiliate sites.
