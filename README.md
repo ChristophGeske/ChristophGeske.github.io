@@ -26,15 +26,6 @@ ht<span>tp://</span>amzn.to/37wAZqf
       
 ht<span>tp://</span>amzn.to/3rgU1ZI
 
-### Amazon UK 64GB 
-
-ht<span>tp://</span>amzn.to/3qqErt1
-
-### UK 265GB
-
-ht<span>tp://</span>amzn.to/3suHVwz
-
-Am besten Ihr vergleicht alle 6 Links und nehmt das Angebot, wo es am schnellsten geliefert wird und am günstigsten ist.
 Wenn die 64GB Variante mal wieder überall ausverkauft ist, dann könnt ihr auch die um einiges teurere 256GB Version verwenden die ist bei den ausländischen Amazon Shops sofort verfügbar und mehr Speicher ist auch nicht schlecht. Zumindest habt ihr dann eine bis Weihnachten.
 
 Bei meiner Bestellen bei amazon Frankreich, war der Versand nach Deutschland schon mit drin und es blieb immer noch unter dem UVP den man auf der Seite sieht.
