@@ -20,11 +20,12 @@ Ich habe mal alle sinnvollen Links rausgesucht.
 
 ### Amazon Frankreich 64GB
       
-ht<span>tp://</span>amzn.to/37wAZqf
+ht<span>tp://</span>amzn.to/3bLUWuP
 
 ### Frankreich 265GB
       
-ht<span>tp://</span>amzn.to/3rgU1ZI
+ht<span>tp://</span>amzn.to/3u3vG9D
+
 
 Wenn die 64GB Variante mal wieder überall ausverkauft ist, dann könnt ihr auch die um einiges teurere 256GB Version verwenden die ist bei den ausländischen Amazon Shops sofort verfügbar und mehr Speicher ist auch nicht schlecht. Zumindest habt ihr dann eine bis Weihnachten.
 
